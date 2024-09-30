@@ -9,4 +9,5 @@
 maria.suna.silva@escola.pr.gov.br
 
 
-![ ](https://tenor.com/pt-BR/view/rapunzel-tangled-flynn-rider-eugene-in-love-gif-13075622633892986117)
+
+![1000000172](https://github.com/user-attachments/assets/bdfc2247-77e2-46e0-81b8-2f1e46158849)
