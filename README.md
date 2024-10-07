@@ -1,5 +1,5 @@
 ## Oiie, me chamo Maria 🩷
-• 🐈‍⬛ tenho 16 anos
+• 🐱 tenho 16 anos
 
 
 • 🖌️ apaixonada por arte
