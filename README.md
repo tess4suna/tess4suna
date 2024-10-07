@@ -1,4 +1,4 @@
-## Oiie, me chamo Maria 🩷
+## Oiie, me chamo Maria 💜
 • 🐱 tenho 16 anos
 
 
